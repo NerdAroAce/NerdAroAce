@@ -4,6 +4,7 @@
 - 💞️ I’m looking to learn to do something useful with my very basic programming knowledge
 - 📫 How to reach me discord (username: justcallmeama )
 - 😄 Pronouns: any
+- 🏳️‍🌈 gender: non-binary
 - ⚡ Fun fact: theres 3 squawk cheatcodes in aviation. 7500 to fly with F15s. 7600 to mute the annoying ATC and do whatever you want. 7700 to get priority landing anywhere.
 
 <!---
